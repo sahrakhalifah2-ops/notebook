@@ -4,7 +4,7 @@ A record of thought, branches, critique, and revision.
 
 ## Structure
 
-- `raw/` — messy drafts, fragments, unfinished
+- `raw/` — messy drafts, unfinished
 - `journal/` — cleaned entries, dated, readable
 - `posts/` — public pieces
 
