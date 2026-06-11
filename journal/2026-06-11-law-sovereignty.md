@@ -7,7 +7,7 @@
 
 ## Raw Thought
 
-Law is rigged for the people upstairs. What happens when web3 and agentic AI become the forefront? Can they become sovereign? These rules are manufactured. Look at who doesn't get arrested—diplomats, billionaires, Epstein. And there's that Silicon Valley city being built. Countries have personalities. There's the Supreme Court, complex hierarchies. But when new coordination systems emerge, the first people to use them are often the people already best at exploiting the gaps. That's the danger.
+Law is rigged for the people upstairs. What happens when web3 and agentic AI become the forefront? Can they become sovereign? These rules are manufactured. Exception to the rule, . And there's that Silicon Valley city being built.  There's the Supreme Court, complex hierarchies. But when new coordination systems emerge, the first people to use them are often the people already best at exploiting the gaps. That's the danger.
 
 ---
 
